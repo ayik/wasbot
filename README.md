@@ -3,7 +3,7 @@
 
 <p align="center">
   <a href="https://whatsapp.com/channel/0029Vao1R2n9sBIC9sPhvI1P">
-    <img src="https://files.catbox.moe/68moyh.jpeg" alt="QUEEN RIAS X" border="0">
+    <img src="https://files.catbox.moe/68moyhx.jpeg" alt="QUEEN RIAS X" border="0">
   </a>
 </p>
 
